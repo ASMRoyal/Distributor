@@ -18,7 +18,7 @@ Bevore u look for other tools because Distributor hasn't enough feautures, just 
 Fore more details dm me : ASM_Royal#9532
 ```
 
-### A small Showcase
+### Showcase
 
 ![unknown](https://user-images.githubusercontent.com/89786570/180613217-ce41f9ec-b2b5-440b-a181-c25701de1655.png)
 
