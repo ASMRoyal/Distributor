@@ -15,7 +15,7 @@ Before u look for other Tools because Distributor hasn't enough feautures, just 
 2. It will be one of the best payloaders ever!
 3. You can help us developing and more.
 
-Fore more details dm me : ASM_Royal#9532
+For more details dm me : ASM_Royal#9532
 ```
 
 ### Showcase
