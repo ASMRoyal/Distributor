@@ -11,3 +11,5 @@ Or DM me ==> ASM_Royal#9532
 ![image](https://user-images.githubusercontent.com/89786570/180576217-130202c1-b559-4839-9da8-4a85e2eae907.png)
 
 https://user-images.githubusercontent.com/89786570/180611945-71c83fb3-ce58-4e4b-9b9e-c2eb77b9ce53.mp4
+
+![27AAB0C2-23B9-4270-B191-0E3046D8D29F](https://user-images.githubusercontent.com/89786570/180662738-3f7550b6-87d1-4faf-889b-c72ffb402cc5.gif)
