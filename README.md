@@ -4,7 +4,7 @@ It will be availible soon on my discord
 
 For more infos join my dc ==> https://discord.gg/QCY6CuajqK
 
-Or DM me ==> ASM_Royal#9532
+Or DM me ==> ASM_Royal#6666
 
 # Distributor Attack
 
