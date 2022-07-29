@@ -22,7 +22,7 @@ For more details dm me : ASM_Royal#9532
 
 ![unknown](https://user-images.githubusercontent.com/89786570/180613217-ce41f9ec-b2b5-440b-a181-c25701de1655.png)
 
-https://user-images.githubusercontent.com/89786570/181512361-36525896-5091-418f-8014-609cc68ab9f6.mp4
+https://user-images.githubusercontent.com/89786570/181810669-4e107237-658f-4d91-9ddc-8966d56235e3.mp4
 
 ![2022-07-23-17-18-58 (1)](https://user-images.githubusercontent.com/89786570/180613955-a4c75eb0-4585-4cfd-b283-750d479dcff0.gif)
 
