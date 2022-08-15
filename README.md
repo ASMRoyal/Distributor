@@ -3,6 +3,7 @@ Mass Payloader For IP's [ You Can Use Your Own Payloads, For Example For Your Re
 It will be availible soon on my discord
 
 For more infos join my dc ==> https://discord.gg/QCY6CuajqK
+or click this link https://asmroyal.github.io/distributor
 
 Or DM me ==> ASM_Royal#6666
 
