@@ -2,7 +2,7 @@
 Mass Payloader For IP's [ You Can Use Your Own Payloads, For Example For Your Reverse- / Bind-Shell ]
 It will be availible soon on my discord
 
-Download beta here ==> https://github.com/ASMRoyal/distributor/releases
+Download here ==> https://github.com/ASMRoyal/distributor/releases
 
 For more infos join my dc ==> https://discord.gg/QCY6CuajqK
 or click this link https://asmroyal.github.io/distributor
