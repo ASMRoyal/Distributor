@@ -4,7 +4,7 @@ Distributor is a Tool that sends Payload to multiple IP's (in a list) or single 
 
 ### Note
 
-Im not responsible for any Damage you'll do!
+Im not responsible for any Damage you do!
 
 ```markdown
 The Payload Looks like this ==>
