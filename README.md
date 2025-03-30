@@ -7,7 +7,7 @@ Download here ==> https://github.com/ASMRoyal/distributor/releases
 For more infos join my dc ==> https://discord.gg/QCY6CuajqK
 or click this link https://asmroyal.github.io/distributor
 
-Or DM me ==> ASM_Royal#8710
+Or DM me on discord ==> 0xyz
 
 # Distributor Attack
 
